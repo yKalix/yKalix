@@ -3,5 +3,5 @@
 - 🌱 estou começando a aprender programação
 - 📫 How to reach me ...
 
-Tamandua bandeira filhote em posição de ataque
+Tamanduá bandeira filhote em posição de ataque
 
